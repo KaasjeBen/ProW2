@@ -1,1 +1,1 @@
-fakka
+fakka pinda
